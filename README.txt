@@ -1,0 +1,1 @@
+Sell Amazon merchandise on Twitter. Markets items around trending and controversial topics that require a call for action. Mimic profiles as a source of credibility. Include generic statements / taglines.  
